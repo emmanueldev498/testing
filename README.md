@@ -1,1 +1,1 @@
-our first push fresh and bj
+our first push fresh and bj. Bj is here now. Lets roll and shine
